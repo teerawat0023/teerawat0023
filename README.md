@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @teerawat0023
-- 👀 I’m interested in it
+- 👀 I’m interested in game
 - 🌱 I’m currently learning it
 - 💞️ I’m looking to collaborate on intel
 - 📫 How to reach me 0617434838
